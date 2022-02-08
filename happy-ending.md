@@ -1,0 +1,1 @@
+Ned went back to Winterfell and lived a wonderful full life with his family.
